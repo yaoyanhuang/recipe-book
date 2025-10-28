@@ -1,0 +1,3 @@
+- Eucalyptus tea (from approved species): Some herbal teas use small amounts of eucalyptus for respiratory benefits. Always check safety guidelines.
+- Eucalyptus-infused honey or lozenges: Popular in natural remedies for sore throats.
+- Aromatic dishes: Use eucalyptus essential oil (food-grade only) in tiny amounts for aroma—not flavor
