@@ -1,0 +1,4 @@
+- heat pan
+- add oil
+- 4 eggs for the big boy
+- low heat
